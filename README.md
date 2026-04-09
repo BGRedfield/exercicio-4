@@ -1,1 +1,1 @@
-# exercicio-4
+Era uma vez, um gato chadrez, morto. A Escocesa estava depressiva por este mesmo motivo, da se mister sua depressão. Ela corria incessantemente com a agonia turbilhante que esmagava seu corpo, já não aguentava mais, primeiro sua avó, agora seu gato. A unica coisa que sobrava para ela era o odor da podridão orgâniga; não tinha coragem para retiralo, não tinha coragem para viver.
